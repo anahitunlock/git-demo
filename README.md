@@ -6,8 +6,7 @@ on this their chosen battle field
 
 Form the lines
 Shield by shield
-Side by side
-We're marching into destiny
+gi
 
 March as one
 Don't look back
